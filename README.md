@@ -1,3 +1,1 @@
-﻿# GATE-PROJECT
-# GATE-PROJECT
 
